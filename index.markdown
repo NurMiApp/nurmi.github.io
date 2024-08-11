@@ -1,3 +1,4 @@
+![1713259178290](https://github.com/user-attachments/assets/29720a79-1122-4187-969f-958b7432595f)
 # Company
 NurMi Inc. Since 2019 you have any CEO by Sasha Mike and like order it from 2020 that is 2021 you can come get it. Ask you 2022 you NurMi the morning. Question about year 2023 that'll be 2024.
 # Product
