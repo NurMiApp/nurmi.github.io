@@ -22,4 +22,5 @@ An extra that product by NurMi's since 2019. Can say that "Hey damn!" this greet
 
 2019: I-A-M LLC: I am Mike LLC.
 # Official Channel
-GitHub: @NurMiApp
+[GitHub](https://github.com/NurMiApp)
+[Boosty](https://boosty.to/nurmike)
